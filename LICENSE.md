@@ -1,4 +1,4 @@
-
+Enhance your IVPN experience with exclusive IVPN Addon | server-switching + static-IP, the #1 addon. Includes server-switching and static-IP for a safer and more private online
 
 
 
